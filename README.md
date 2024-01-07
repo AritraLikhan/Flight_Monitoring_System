@@ -42,5 +42,5 @@ The system is ready to interface.
 
 ## Contact
 
-E-mail: likhan2007092@stud.kuet.ac.bd
+E-mail: aritralikhan2001@gmail.com
 
